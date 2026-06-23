@@ -1,3 +1,3 @@
 
-- my yuusona
+- my yuusona i photobashed
  [![Untitled101-20260611182911.png](https://i.postimg.cc/m2thqTrb/Untitled101-20260611182911.png)](https://postimg.cc/HV1p8D5K)
