@@ -5,5 +5,5 @@
 - i dont feel like making this aesthetic
 - DNI :if u whitewash any of the poc characters trying to excuse it as "i colorpicked their official sprite"
   
-- if u ship tweelcest,shroudcest,jamikali,leoruggie(i WILL hide you),PROSHIPPERS,sebsil,if you ship the diafam with each other in general
+- if u ship tweelcest,shroudcest,jamikali,leoruggie(i WILL hide you),PROSHIPPERS,if you ship the diafam with each other in general
   
