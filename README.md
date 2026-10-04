@@ -1,5 +1,6 @@
 
-- my yuusona i photobashed
+- my yuusona i photobashed horribly LMFAO
+- 
  [![Untitled101-20260611182911.png](https://i.postimg.cc/m2thqTrb/Untitled101-20260611182911.png)](https://postimg.cc/HV1p8D5K)
 - i dont mind talking/interacting with people but keep in mind im just really awkward at first
 - I beg all you new people to read the manga/ the novels instead of mischaracterizing all the characters 
