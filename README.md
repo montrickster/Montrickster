@@ -1,5 +1,5 @@
 yuusona 2.0  
-[![Untitled37-20261007082238.png](https://i.postimg.cc/XvhVpcwC/Untitled37-20261007082238.png)](https://postimg.cc/Mc7kLB36)
+[![Untitled37-20261007141503.png](https://i.postimg.cc/GtwnxCJ5/Untitled37-20261007141503.png)](https://postimg.cc/BLgzJRzT)
 
 - i dont mind talking/interacting with people but keep in mind im just really awkward at first
 - I beg all you new people to read the manga/ the novels instead of mischaracterizing all the characters 
