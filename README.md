@@ -1,4 +1,5 @@
-
+yuusona 2.0 whoop whoop!
+![image](https://files.catbox.moe/lx34co.png)
 
 - i dont mind talking/interacting with people but keep in mind im just really awkward at first
 - I beg all you new people to read the manga/ the novels instead of mischaracterizing all the characters 
