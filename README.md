@@ -1,5 +1,5 @@
-yuusona 2.0 whoop whoop!
-[![Untitled37-20261007003736.png](https://i.postimg.cc/G2v68CR0/Untitled37-20261007003736.png)](https://postimg.cc/0M2VFhrZ)
+yuusona 2.0  soon whoop whoop!
+
 
 - i dont mind talking/interacting with people but keep in mind im just really awkward at first
 - I beg all you new people to read the manga/ the novels instead of mischaracterizing all the characters 
