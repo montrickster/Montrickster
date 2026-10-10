@@ -3,7 +3,7 @@ yuusona 2.0
 i thought about jolyne cujoh while making her oops 
 - i dont mind talking/interacting with people but keep in mind im just really awkward at first
 - I beg all you new people to read the manga/ the novels instead of mischaracterizing all the characters 
-- DNI :if u whitewash any of the poc characters trying to excuse it as "i colorpicked their official sprite"
+- DNI :LEONA,KALIM,JAMIL,JACK&MINHAJ whitewashers (you know who you are)
   
 - if u ship tweelcest,shroudcest,jamikali,leoruggie(i WILL hide you),PROSHIPPERS,if you ship the diafam with each other in general
   
